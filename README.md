@@ -1,1 +1,1 @@
-Esercizio di Laboratorio 2
+Esercizi di Laboratorio 2
